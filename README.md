@@ -1,0 +1,7 @@
+- 👋 Myslef @Mohan
+- 👀 I’m interested in Travelling, Bikes & Cars..
+- 🌱 I’m currently learning BCA
+- 💞️ I’m looking to collaborate on creating AI
+- 📫 On IG: @_igmoni On X:@_igmoni On Snap : @igmonii 
+- 😄 Nikname: moni🥤 || mon 😎
+- ⚡ Fun Fact: Introvert 😅
