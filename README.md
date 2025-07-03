@@ -1,8 +1,4 @@
 - 👋 Myslef @Mohan
-- 👀 I’m interested in Travelling, Bikes & Cars..
 - 🌱 I’m currently learning BCA
 - 💞️ I’m looking to collaborate on creating a Freelance Portal!
 - 👀Looking for Co-founders who are Web Developers
-- 📫 On IG: @_igmoni On X:@_igmoni On Snap : @igmonii 
-- 😄 Nikname: moni🥤 || mon 😎
-- ⚡ Fun Fact: Introvert 😅
