@@ -1,4 +1,2 @@
-- 👋 Myslef @Mohan
-- 🌱 I’m currently learning BCA
-- 💞️ I’m looking to collaborate on creating a Freelance Portal!
-- 👀Looking for Co-founders who are Web Developers
+**Sup! Am Mohan**
+I write things that machines understand. Humans call it code.
